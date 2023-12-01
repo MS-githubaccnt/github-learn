@@ -1,3 +1,4 @@
 #TRYNA learn
 
-are you winning son?
+are you winning son!?
+edit chk
